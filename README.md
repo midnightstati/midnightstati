@@ -4,3 +4,10 @@
 [![Hits](https://hits.sh/github.com/midnightstati.svg?style=flat-square&label=Jump&extraCount=7808&color=FCABC9&labelColor=FEF3E9)](https://hits.sh/github.com/midnightstati/)
 
 [AƚαႦσσƙ](https://ilove-him.atabook.org/)<img width="35" height="30" alt="Image" src="https://github.com/user-attachments/assets/dee6788d-ef92-4204-816c-0446a8099e18" />[Pɾɳʂ](https://en.pronouns.page/@oreo1lover)
+
+My cuddy group:
+
+[𝚂𝚒𝚗𝚊](@OlgaSinxer)[𝚈𝚊𝚝𝚝𝚊](@c-utesy)[𝙼𝚊𝚘𝚠](@VArtfultrust)
+
+<details>
+<summary></summary>
