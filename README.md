@@ -5,17 +5,17 @@
 
 [AƚαႦσσƙ](https://ilove-him.atabook.org/)<img width="35" height="30" alt="Image" src="https://github.com/user-attachments/assets/dee6788d-ef92-4204-816c-0446a8099e18" />[Pɾɳʂ](https://en.pronouns.page/@oreo1lover)
 
-My cuddy group:
+my cuddy group:
 
 [𝚂𝚒𝚗𝚊](@OlgaSinxer)  [𝚈𝚊𝚝𝚝𝚊](@c-utesy)  [𝙼𝚊𝚘𝚠](@VArtfultrust)
 
 <details>
-<summary>Other moots in pt!</summary><br>
+<summary>other moots in pt!</summary><br>
 
-[𝙶𝚊𝚝𝚒𝚝𝚊](Gatita-here)  [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz) 
+[𝙶𝚊𝚝𝚒𝚝𝚊](Gatita-here) | [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz) 
 
-[𝙼𝚊𝚕𝚕𝚘𝚠](@mallowave)  [𝚆𝚞𝚔](@chanceforgotdebtt) 
+[𝙼𝚊𝚕𝚕𝚘𝚠](@mallowave) | [𝚆𝚞𝚔](@chanceforgotdebtt) 
 
-[𝚂𝚊𝚗](@Flowersan2)  [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
+[𝚂𝚊𝚗](@Flowersan2) | [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
 
-[𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll)  [𝙼𝚒𝚠](@mehehe)
+[𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll) | [𝙼𝚒𝚠](@mehehe)
