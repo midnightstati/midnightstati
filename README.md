@@ -3,4 +3,4 @@
 
 [![Hits](https://hits.sh/github.com/midnightstati.svg?style=flat-square&label=Jump&extraCount=7808&color=FCABC9&labelColor=FEF3E9)](https://hits.sh/github.com/midnightstati/)
 
-[AƚαႦσσƙ](https://ilove-him.atabook.org/)<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/dee6788d-ef92-4204-816c-0446a8099e18" />[Pɾɳʂ](https://en.pronouns.page/@oreo1lover)
+[AƚαႦσσƙ](https://ilove-him.atabook.org/)<img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/dee6788d-ef92-4204-816c-0446a8099e18" />[Pɾɳʂ](https://en.pronouns.page/@oreo1lover)
