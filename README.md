@@ -25,4 +25,6 @@ my cuddy group:
 
 [𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll) | [𝙼𝚒𝚠](@mehehe)
 
+<img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/45764b01-f9d5-444e-8846-eb6122124152" />
 
+Heh
