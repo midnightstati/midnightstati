@@ -12,7 +12,10 @@ My cuddy group:
 <details>
 <summary>Other moots in pt!</summary><br>
 
-[𝙶𝚊𝚝𝚒𝚝𝚊](Gatita-here) [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz) 
-[𝙼𝚊𝚕𝚕𝚘𝚠](@mallowave) [𝚆𝚞𝚔](@chanceforgotdebtt) 
-[𝚂𝚊𝚗](@Flowersan2) [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
-[𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll) [𝙼𝚒𝚠](@mehehe)
+[𝙶𝚊𝚝𝚒𝚝𝚊](Gatita-here)  [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz) 
+
+[𝙼𝚊𝚕𝚕𝚘𝚠](@mallowave)  [𝚆𝚞𝚔](@chanceforgotdebtt) 
+
+[𝚂𝚊𝚗](@Flowersan2)  [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
+
+[𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll)  [𝙼𝚒𝚠](@mehehe)
