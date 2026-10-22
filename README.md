@@ -1,5 +1,4 @@
 <div align="center">
-<details></.>
 
 [read doc.](https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk)
 
