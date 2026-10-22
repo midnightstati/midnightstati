@@ -1,6 +1,6 @@
 <div align="center">
 <details>
-<summary></summary><br>
+<summary></summary>
 
 [read doc.](https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk)
 
