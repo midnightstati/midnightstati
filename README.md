@@ -7,7 +7,8 @@
 
 My cuddy group:
 
-[𝚂𝚒𝚗𝚊](@OlgaSinxer)[𝚈𝚊𝚝𝚝𝚊](@c-utesy)[𝙼𝚊𝚘𝚠](@VArtfultrust)
+[𝚂𝚒𝚗𝚊](@OlgaSinxer) [𝚈𝚊𝚝𝚝𝚊](@c-utesy) [𝙼𝚊𝚘𝚠](@VArtfultrust)
 
 <details>
-<summary></summary>
+<summary>Other moots in pt!</summary><br>
+[𝙶𝚊𝚝𝚒𝚝𝚊](@Gatita-here) [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz)
