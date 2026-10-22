@@ -3,5 +3,5 @@
 
 [![Hits](https://hits.sh/github.com/midnightstati.svg?style=flat-square&label=Jump&extraCount=7808&color=FCABC9&labelColor=FEF3E9)](https://hits.sh/github.com/midnightstati/)
 
-<details></info>
-something 
+<$\color{#FFB2C5}{\textsf{{info}$></info>
+
