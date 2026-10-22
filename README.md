@@ -11,4 +11,4 @@ My cuddy group:
 
 <details>
 <summary>Other moots in pt!</summary><br>
-[𝙶𝚊𝚝𝚒𝚝𝚊](@Gatita-here) [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz)
+
