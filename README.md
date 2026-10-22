@@ -19,3 +19,8 @@ my cuddy group:
 [𝚂𝚊𝚗](@Flowersan2) | [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
 
 [𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll) | [𝙼𝚒𝚠](@mehehe)
+
+<details>
+<summary></summary>
+
+[read docs.](https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk)
