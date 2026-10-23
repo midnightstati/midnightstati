@@ -12,18 +12,18 @@
 
 my cuddy group:
 
-[𝚂𝚒𝚗𝚊](@OlgaSinxer)  [𝚈𝚊𝚝𝚝𝚊](@c-utesy)  [𝙼𝚊𝚘𝚠](@VArtfultrust)
+[𝚂𝚒𝚗𝚊](https://github.com/OlgaSinxer)  [𝚈𝚊𝚝𝚝𝚊](https://github.com/c-utesy)  [𝙼𝚊𝚘𝚠](https://github.com/VArtfultrust)
 
 <details>
 <summary>other moots in pt!</summary><br>
 
-[𝙶𝚊𝚝𝚒𝚝𝚊](Gatita-here) | [𝚂𝚑𝚎𝚕𝚕𝚢](@ShellzyFossilzianz) 
+[𝙶𝚊𝚝𝚒𝚝𝚊](https://github.com/Gatita-here) | [𝚂𝚑𝚎𝚕𝚕𝚢](https://github.com/ShellzyFossilzianz) 
 
-[𝙼𝚊𝚕𝚕𝚘𝚠](@mallowave) | [𝚆𝚞𝚔](@chanceforgotdebtt) 
+[𝙼𝚊𝚕𝚕𝚘𝚠](https://github.com/mallowave) | [𝚆𝚞𝚔](https://github.com/chanceforgotdebtt) 
 
-[𝚂𝚊𝚗](@Flowersan2) | [𝙳𝚊𝚗𝚐𝚘](@dangomiIk) 
+[𝚂𝚊𝚗](https://github.com/flowersan02) | [𝙳𝚊𝚗𝚐𝚘](https://github.com/dangomiIk) 
 
-[𝙼𝚎𝚕𝚘𝚍𝚢](@melodryll) | [𝙼𝚒𝚠](@mehehe)
+[𝙼𝚎𝚕𝚘𝚍𝚢](https://github.com/melodryll) | [𝙼𝚒𝚠](https://github.com/Mewhehe)
 
 <img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/45764b01-f9d5-444e-8846-eb6122124152" />
 
