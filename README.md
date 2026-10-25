@@ -1,6 +1,6 @@
 <div align="center">
 
-[read doc.](https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk)
+[read callout doc.](https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk)
 
 <div align="center">
 
