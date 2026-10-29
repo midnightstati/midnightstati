@@ -25,7 +25,7 @@ my cuddy group:
 
 [𝙼𝚎𝚕𝚘𝚍𝚢](https://github.com/melodryll) | [𝙼𝚒𝚠](https://github.com/Mewhehe)
 
-[𝙰𝚗𝚒](https://github.com/ttripmine)
+[𝙰𝚗𝚒](https://github.com/ttripmine) | [𝙴𝚖𝚘𝚗𝚓𝚒](https://github.com/jx1dx1141-dev)
 
 <img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/45764b01-f9d5-444e-8846-eb6122124152" />
 
